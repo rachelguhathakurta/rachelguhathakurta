@@ -22,4 +22,3 @@ M&T sophomore ([Wharton + Penn Engineering](https://linkedin.com/in/rachelguhath
 ## Links
 - LinkedIn: https://linkedin.com/in/rachelguhathakurta
 - Email:   rachelguhathakurta @ gmail 
-# rachelguhathakurta
